@@ -9,7 +9,7 @@
 
 - 📫 Puedes contactarme en:  https://www.linkedin.com/in/felipe-andres-silva-jerez-/
 
-- ⚡ Fun fact: Me gusta correr 🏃 y salir de camping 🔦🏕️ Viví en Irlanda 1 año y 4 meses 🇮🇪☘️
+- ⚡ Fun fact: Me gusta correr 🏃 y leer 🔦🏕️ Viví en Irlanda 1 año y 4 meses 🇮🇪☘️
 
 - Puedes observerar algunos trabajos que he realizado aquí abajo ⬇️
 
