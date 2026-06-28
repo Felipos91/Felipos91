@@ -3,7 +3,7 @@
 
 - 🔭 Actualmente busco una oportunidad en TI ...
 
-- 🌱 Estudie Ingeniería Civil en Biotecnología y Java es mi motivación!! 🦾 
+- 🌱 Estudié Ingeniería Civil en Biotecnología y Java es mi motivación!! 🦾 
 
 - 👯 Busco aprender y colaborar en proyectos tecnológicos que generen cambios importantes.
 
